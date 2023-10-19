@@ -10,7 +10,7 @@
 <a href="https://t.me/myonnet"  target="_blank">@myonnet</a>
 <br> <br> <br> <br> 
 
-vpn von net
+وی پی ان آن نت
 <br>
 چندین سرویس و سرور از سراسر دنیا (این یعنی قطعی شما به صفر نزدیک کردیم)
 <br>ا
